@@ -1,3 +1,3 @@
 # Resume
 Resume 
-Link : https://drive.google.com/drive/folders/1yhMW_pCU728h8nUEAYDNWjp4cfXDWzK3
+Link : https://drive.google.com/file/d/1sU5Lf7LmXKcICIq-ZJa9JRje25KV9HGv/view?usp=share_link
